@@ -1,5 +1,5 @@
 Hello guys!
 
-Ho r u doing?
+How r u doing?
 
 Is verything okay?
